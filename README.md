@@ -10,7 +10,7 @@ follow me to get free bread 🥖🍞 [twitter](https://x.com/hkyo_xo) , [tiktok]
 
 中文/粤语/eng/malay = OK! 
 
-#1 rufus shinra fan lalala I LOVE MR PRESIDENT
+#1 rufus shinra fan lalala I LOVE YOU MR PRESIDENT
 
 yume: rufus shinra (non.sharing), light yagami (sel.sharing) , evernight (sharing?? sel.sharing?? idk but im ok w doubles for now)
 
