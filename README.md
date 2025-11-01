@@ -6,7 +6,7 @@ byi: HI i dont bite, but maybe sometimes i'd be a bit awkward erm. and SORRY if 
 
 dni: basic dni criteria ok, no weirdo and anything 
 
-follow me to get free bread 🥖🍞 [twitter](https://x.com/hkyo_xo) , [tiktok](https://www.tiktok.com/@kyooqi)
+follow me to get free bread 🥖🍞 [twitter](https://x.com/qiikyoo) , [tiktok](https://www.tiktok.com/@kyooqi)
 
 中文/粤语/eng/malay = OK! 
 
