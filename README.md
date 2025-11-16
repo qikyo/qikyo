@@ -4,7 +4,7 @@
 
 中文/eng = OK! 
 
-byi: sorry if i sometimes dont reply back, i dont rlly find long conversations enjoying unless i'm in the mood for it. + i tend to find problematic characters interesting (light, griffith, johan, etc) but that NEVER means i support and defend their wrongdoing. i simply like them for their writings, lore, etc. if you still think i'm weird or feel uncomfortable, feel free to block me. 
+byi: sorry if i sometimes dont reply back, i dont rlly find long conversations enjoying unless i'm in the mood for it. + i tend to find problematic characters interesting (light, griffith, johan, etc) but that NEVER means i support or defend their wrongdoing. i simply like them for their writings, lore, etc. if you still think i'm weird or feel uncomfortable, feel free to block me. 
 
 dni: basic dni criteria + if you dislike any of my interests
 
